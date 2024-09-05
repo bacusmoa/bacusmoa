@@ -1,1 +1,1 @@
-hello! im bacusmoa. i code roblox games and discord bots
+hello! im bacusmoa. i make roblox games and discord bots
