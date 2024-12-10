@@ -1,2 +1,3 @@
 hello! im bacusmoa. i make roblox games and discord bots.
-![infuriated thumbnail](https://github.com/user-attachments/assets/f0f39aa0-649d-4f65-ba33-0b6b76cdfaae)
+
+![js](https://github.com/user-attachments/assets/5aada9a2-e1d0-4979-8dc0-74ee01d49bc1)
